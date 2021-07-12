@@ -1,0 +1,1 @@
+Estou muito satisfeita com os conteúdos de soft skills, porém os conteúdos técnicos estão aquém da minha expectativa.
